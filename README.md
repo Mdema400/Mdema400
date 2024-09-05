@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming, logo design and writing.
 - 🌱 I’m currently learning website development.
 - 💞️ I’m looking to collaborate on GItHUb
-- 📫 How to reach me though my watsapp or message with this Number: 08126053400
+- 📫 How to reach me through my watsapp or message with this Number: 08126053400
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
